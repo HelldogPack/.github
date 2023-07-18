@@ -1,2 +1,2 @@
-# NewWind Modpacks
+# New Wind Modpacks
 Soon™
