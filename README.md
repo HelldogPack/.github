@@ -1,2 +1,2 @@
-# .github
-The ✨ magic ✨ repo
+# NewWind Modpacks
+Soon™
